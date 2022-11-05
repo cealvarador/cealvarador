@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cealvarador
-- 👀 I’m interested in product management
+- 👀 I’m interested in Strategy, Innovation & Business Transformation management
 - 🌱 I’m currently learning about collaborative tools, to control and monitor project/product development
 - 📫 Reach me at https://www.linkedin.com/in/cealvarador/
 
